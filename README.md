@@ -1,0 +1,1 @@
+# Hackintosh-I7-10700k-asus-z490-p
